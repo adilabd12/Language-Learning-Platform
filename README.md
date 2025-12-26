@@ -1,1 +1,1 @@
-# IS117-P4
+Welcome to our platform, a place where language learning meets cultural exploration. Our mission is to help learners achieve fluency and confidence in their target language through interactive courses and personalized sessions with native-speaking tutors.
